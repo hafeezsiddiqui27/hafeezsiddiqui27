@@ -38,6 +38,7 @@ Developing intelligent applications, building reliable AI-driven workflows, and 
 Interested in AI engineering, machine learning, or automation? Let's connect.
 
 * **LinkedIn:** [Hafeez Siddiqui](https://www.linkedin.com/in/hafeezsiddiqui27)
+* **Email:** Hafeezusiddiqui4@gmail.com
 
 
-*Building intelligent systems. Automating what matters.*
+
